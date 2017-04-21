@@ -1,1 +1,1 @@
-# aoki-yuya.github.io
+# aokiyuya.github.io
